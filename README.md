@@ -5,3 +5,5 @@
 
 
 ---
+
+- Studying BSIT at [Franciscan College of the Immaculate Conception]([https://www.edukasyon.ph/schools/east-systems-colleges-of-rizal](https://fcic.edu.ph/)https://fcic.edu.ph/)
